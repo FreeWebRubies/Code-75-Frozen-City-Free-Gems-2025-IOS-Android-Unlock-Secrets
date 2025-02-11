@@ -2,6 +2,8 @@
 
 Frozen City is an engaging mobile game where you build, manage resources, and explore a frozen world. Gems are one of the premium currencies in the game, and players often look for ways to earn them for free instead of purchasing them with real money. Here are some frequently asked questions (FAQs) about acquiring free Gems in Frozen City:
 
+<p><a href="https://getallnow.online/frozencity/">✅👉Click Here to Get Now Free!</a></p>
+
 Frozen City Free Gems: FAQs
 1. How can I get free Gems in Frozen City?
 There are several legitimate ways to earn free Gems in Frozen City without spending real money:
